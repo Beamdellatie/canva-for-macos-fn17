@@ -1,4 +1,4 @@
-
+Canva for macOS exclusive Plugin - blend modes and non-destructive editing offers the most advanced Canva for macOS plugin, with blend modes and non-destructive editing. Ideal for
 
 
 
